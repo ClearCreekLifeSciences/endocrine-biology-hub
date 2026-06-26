@@ -92,6 +92,7 @@ Research materials (affiliate disclosure):
 [Happy Peptides – Research Materials](https://happypeptides.com/?ref=MINDFULMULLINS&tw_source=affiliate&utm_source=affiliate)  
 [LinkedIn – Clear Creek Life Sciences](https://www.linkedin.com/company/clear-creek-life-sciences)  
 
+
 This content is intended for educational and informational purposes only.
 
 Not medical advice
