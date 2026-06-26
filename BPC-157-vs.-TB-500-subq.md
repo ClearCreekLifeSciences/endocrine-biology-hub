@@ -161,3 +161,24 @@ Malinda, K.M. TB‑4 and angiogenesis. Journal of Investigative Dermatology.
 GI mucosal protection studies involving BPC‑157 (various preclinical models).
 
 Cell migration and actin‑binding research involving TB‑4 fragments.
+
+🎥 Educational Media & External Resources  
+
+Full educational breakdown (YouTube and Pinterest):  
+
+[YouTube – Full Educational Breakdown](https://youtu.be/PqdJ_tj2ee8)  
+[Pinterest – Clear Creek Life Sciences](https://www.pinterest.com/ClearCreekLifeSciences/)  
+
+Research materials (affiliate disclosure):  
+
+[Averix Labs – Research Materials](https://averixlabs.com/?utm_source=affiliate_marketing&code=MULLINSLABS15)  
+[Happy Peptides – Research Materials](https://happypeptides.com/?ref=MINDFULMULLINS&tw_source=affiliate&utm_source=affiliate)  
+[LinkedIn – Clear Creek Life Sciences](https://www.linkedin.com/company/clear-creek-life-sciences)  
+
+
+This content is intended for educational and informational purposes only.
+
+Not medical advice
+Not intended to diagnose, treat, cure, or prevent any disease
+No dosing, treatment, or usage protocols are discussed
+Always consult a qualified healthcare professional for medical decisions
