@@ -82,10 +82,12 @@ Modern mitochondrial research summaries (Metabolic Playbook, Peptide Compendium,
 🎥 Educational Media & External Resources
 
 Full educational breakdown (YouTube and Pinterest):
+
 [YouTube – Full Educational Breakdown](https://youtu.be/PqdJ_tj2ee8)
 [Pinterest – Clear Creek Life Sciences](https://www.pinterest.com/ClearCreekLifeSciences/)
 
 Research Materials (affiliate disclosure)
+
 [Averix Labs – Research Materials](https://averixlabs.com/?utm_source=affiliate_marketing&code=MULLINSLABS15)
 [Happy Peptides – Research Materials](https://happypeptides.com/?ref=MINDFULMULLINS&tw_source=affiliate&utm_source=affiliate)
 [LinkedIn – Clear Creek Life Sciences](https://www.linkedin.com/company/clear-creek-life-sciences)
