@@ -79,19 +79,18 @@ Fuku, N., et al. Exercise‑induced MOTS‑c expression and metabolic adaptation
 
 Modern mitochondrial research summaries (Metabolic Playbook, Peptide Compendium, Mitochondrial Review).
 
-🎥 Educational Media & External Resources
+🎥 Educational Media & External Resources  
 
-Full educational breakdown (YouTube and Pinterest):
+Full educational breakdown (YouTube and Pinterest):  
 
-[YouTube – Full Educational Breakdown](https://youtu.be/PqdJ_tj2ee8)
-[Pinterest – Clear Creek Life Sciences](https://www.pinterest.com/ClearCreekLifeSciences/)
+[YouTube – Full Educational Breakdown](https://youtu.be/PqdJ_tj2ee8)  
+[Pinterest – Clear Creek Life Sciences](https://www.pinterest.com/ClearCreekLifeSciences/)  
 
-Research materials (affiliate disclosure):
+Research materials (affiliate disclosure):  
 
-[Averix Labs – Research Materials](https://averixlabs.com/?utm_source=affiliate_marketing&code=MULLINSLABS15)
-[Happy Peptides – Research Materials](https://happypeptides.com/?ref=MINDFULMULLINS&tw_source=affiliate&utm_source=affiliate)
-[LinkedIn – Clear Creek Life Sciences](https://www.linkedin.com/company/clear-creek-life-sciences)
-
+[Averix Labs – Research Materials](https://averixlabs.com/?utm_source=affiliate_marketing&code=MULLINSLABS15)  
+[Happy Peptides – Research Materials](https://happypeptides.com/?ref=MINDFULMULLINS&tw_source=affiliate&utm_source=affiliate)  
+[LinkedIn – Clear Creek Life Sciences](https://www.linkedin.com/company/clear-creek-life-sciences)  
 
 This content is intended for educational and informational purposes only.
 
