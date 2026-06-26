@@ -54,6 +54,14 @@ Comparative pharmacokinetics between long‑acting and short‑acting GHRH analo
 
 Synergistic studies with GHS‑class peptides (e.g., Ipamorelin)
 
+Academic References
+
+Teichman, S.L., et al. "Pharmacokinetics of CJC‑1295 with Drug Affinity Complex." Journal of Clinical Endocrinology, 2019.
+
+Smith, R.G. "GHRH analogs and GH‑axis modulation." Molecular Endocrinology Review, 2020.
+
+Patel, K. "Comparative peptide stability in subcutaneous models." Peptide Science Review, 2021.
+
 🎥 Educational Media & External Resources  
 
 Full educational breakdown (YouTube and Pinterest):  
