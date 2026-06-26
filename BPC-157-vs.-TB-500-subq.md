@@ -112,44 +112,6 @@ Research primarily preclinical
 
 Not FDA‑approved; no recognized therapeutic indications
 
-Summary Comparison
-
-Feature
-
-BPC‑157
-
-TB‑500
-
-Origin
-
-Gastric protein fragment
-
-TB‑4‑derived fragment
-
-Primary Themes
-
-Angiogenesis, cytoprotection, GI mucosa
-
-Cell migration, actin dynamics, wound‑healing
-
-Subcutaneous Research
-
-Yes
-
-Yes
-
-Oral Research
-
-Yes (preclinical interest)
-
-Limited
-
-Regulatory Status
-
-Not FDA‑approved
-
-Not FDA‑approved
-
 📚 References (Educational Context)
 
 Sikiric, P., et al. BPC‑157 and cytoprotection research. Current Pharmaceutical Design.
