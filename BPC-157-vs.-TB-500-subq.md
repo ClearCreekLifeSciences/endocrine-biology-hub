@@ -134,6 +134,10 @@ Full educational breakdown (YouTube and Pinterest):
 
 Research materials (affiliate disclosure):  
 
+[True Sciences – Shop Research Materials](https://true-sciences.com/aff/98/)
+
+[True Sciences – Become an Ambassador](https://true-sciences.com/partners/aff/98/)
+
 [Averix Labs – Research Materials](https://averixlabs.com/?utm_source=affiliate_marketing&code=MULLINSLABS15)  
 [Happy Peptides – Research Materials](https://happypeptides.com/?ref=MINDFULMULLINS&tw_source=affiliate&utm_source=affiliate)  
 [LinkedIn – Clear Creek Life Sciences](https://www.linkedin.com/company/clear-creek-life-sciences)  
