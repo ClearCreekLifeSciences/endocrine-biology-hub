@@ -128,7 +128,8 @@ Cell migration and actin‑binding research involving TB‑4 fragments.
 
 Full educational breakdown (YouTube and Pinterest):  
 
-[YouTube – Full Educational Breakdown](https://youtu.be/PqdJ_tj2ee8)  
+[YouTube – Full Educational Breakdown](https://youtu.be/koNnwIMTMgw?si=2zExoFGb0ogcb5nV) 
+
 [Pinterest – Clear Creek Life Sciences](https://www.pinterest.com/ClearCreekLifeSciences/)  
 
 Research materials (affiliate disclosure):  
