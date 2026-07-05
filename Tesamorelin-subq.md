@@ -65,7 +65,8 @@ Comparative studies with other GHRH analogs
 
 Full educational breakdown (YouTube and Pinterest):  
 
-[YouTube – Full Educational Breakdown](https://youtu.be/PqdJ_tj2ee8)  
+[YouTube – Full Educational Breakdown](https://youtu.be/Csct3lGurkw)
+
 [Pinterest – Clear Creek Life Sciences](https://www.pinterest.com/ClearCreekLifeSciences/)  
 
 Research materials (affiliate disclosure):  
