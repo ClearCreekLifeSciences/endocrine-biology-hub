@@ -64,7 +64,8 @@ Regulatory history (U.S.):
 
 Full educational breakdown (YouTube and Pinterest):  
 
-[YouTube – Full Educational Breakdown](https://youtu.be/PqdJ_tj2ee8)  
+[YouTube – Full Educational Breakdown](https://youtu.be/Hn79BFAIupc?si=5MfGl6uNkkaLuqX3)
+
 [Pinterest – Clear Creek Life Sciences](https://www.pinterest.com/ClearCreekLifeSciences/)  
 
 Research materials (affiliate disclosure):  
