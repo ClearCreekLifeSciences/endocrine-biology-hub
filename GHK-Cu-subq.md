@@ -89,7 +89,7 @@ Modern dermatology reviews summarizing GHK‑Cu’s cosmetic and biological rese
 
 Full educational breakdown (YouTube and Pinterest):  
 
-[YouTube – Full Educational Breakdown](https://youtu.be/PqdJ_tj2ee8)  
+[YouTube – Full Educational Breakdown](https://youtu.be/GpjBCJY63tU?si=POvX5SLPAqdiMGhd)
 [Pinterest – Clear Creek Life Sciences](https://www.pinterest.com/ClearCreekLifeSciences/)  
 
 Research materials (affiliate disclosure):  
