@@ -54,7 +54,7 @@ Manufacturer prescribing information/package inserts for Bacteriostatic Water fo
 
 Full educational breakdown (YouTube and Pinterest):
 
-[YouTube – Full Educational Breakdown](https://youtu.be/PqdJ_tj2ee8)
+[YouTube – Full Educational Breakdown](https://youtu.be/1pWg6UFsgQE?si=8RbE0yl9L0fMkSeo)
 
 [Pinterest – Clear Creek Life Sciences](https://www.pinterest.com/ClearCreekLifeSciences/)
 
