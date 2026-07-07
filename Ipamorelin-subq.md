@@ -64,7 +64,8 @@ Patel, K. "Peptide stability and subcutaneous absorption models." Peptide Scienc
 
 Full educational breakdown (YouTube and Pinterest):  
 
-[YouTube – Full Educational Breakdown](https://youtu.be/PqdJ_tj2ee8)  
+[YouTube – Full Educational Breakdown](https://youtu.be/rKOpXsx5-RU)
+
 [Pinterest – Clear Creek Life Sciences](https://www.pinterest.com/ClearCreekLifeSciences/)  
 
 Research materials (affiliate disclosure):  
