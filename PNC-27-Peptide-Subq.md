@@ -43,7 +43,7 @@ Davitt K, et al. (2014). "The Anti-Cancer Peptide, PNC-27, Induces Tumor Cell Ne
 
 Full educational breakdown (YouTube and Pinterest):  
 
-[YouTube – Full Educational Breakdown](https://youtu.be/rKOpXsx5-RU?si=RaKXaot-vjCj2CS4)
+[YouTube – Full Educational Breakdown](https://youtu.be/VsxO_ffHS9w)
 
 [Pinterest – Clear Creek Life Sciences](https://www.pinterest.com/ClearCreekLifeSciences/)  
 
