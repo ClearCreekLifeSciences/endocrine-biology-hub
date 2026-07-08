@@ -39,17 +39,26 @@ Sarafraz-Yazdi E, et al. (2015). "Ex vivo Efficacy of Anti-Cancer Drug PNC-27 in
 Thadi A, et al. (2020). "Targeting Membrane HDM-2 by PNC-27 Induces Necrosis in Leukemia Cells But Not in Normal Hematopoietic Cells." Anticancer Research.
 Davitt K, et al. (2014). "The Anti-Cancer Peptide, PNC-27, Induces Tumor Cell Necrosis of a Poorly Differentiated Non-Solid Tissue Human Leukemia Cell Line." Annals of Clinical & Laboratory Science.
 
-🎥 Educational Media & External Resources
-Full educational breakdown (YouTube and Pinterest):
-YouTube – Full Educational Breakdown
-Pinterest – Clear Creek Life Sciences
-Research materials (affiliate disclosure):
-True Sciences – Shop Research Materials
-True Sciences – Become an Ambassador
-Averix Labs – Research Materials
-Happy Peptides – Research Materials
-LinkedIn – Clear Creek Life Sciences
+🎥 Educational Media & External Resources  
+
+Full educational breakdown (YouTube and Pinterest):  
+
+[YouTube – Full Educational Breakdown](https://youtu.be/rKOpXsx5-RU?si=RaKXaot-vjCj2CS4)
+
+[Pinterest – Clear Creek Life Sciences](https://www.pinterest.com/ClearCreekLifeSciences/)  
+
+Research materials (affiliate disclosure):  
+[True Sciences – Shop Research Materials](https://true-sciences.com/aff/98/)
+
+[True Sciences – Become an Ambassador](https://true-sciences.com/partners/aff/98/)
+
+[Averix Labs – Research Materials](https://averixlabs.com/?utm_source=affiliate_marketing&code=MULLINSLABS15)  
+[Happy Peptides – Research Materials](https://happypeptides.com/?ref=MINDFULMULLINS&tw_source=affiliate&utm_source=affiliate)  
+[LinkedIn – Clear Creek Life Sciences](https://www.linkedin.com/company/clear-creek-life-sciences)  
+
+
 This content is intended for educational and informational purposes only.
+
 Not medical advice
 Not intended to diagnose, treat, cure, or prevent any disease
 No dosing, treatment, or usage protocols are discussed
